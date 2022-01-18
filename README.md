@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @fox-artist
+- 👀 I’m interested in 3D design and coding 
+- 🌱 I’m currently learning how to code, how to start a buisness, and how to make disigns for 3D printing
+- 💞️ I’m looking to collaborate on art.
+- 📫 you can reach me at my email account scarthedeadlyfox2@outlook.com but please don't spam.
